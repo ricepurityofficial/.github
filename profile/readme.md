@@ -19,6 +19,8 @@ Let's dive in and discover how you can talk through the hard times, strengthen y
 
 ## How to Communicate When Your Relationship Faces Challenges?
 
+<img src="https://i.ibb.co/rGYf0wyJ/communicate-in-relationship.jpg" alt="communicate-in-relationship"></a>
+
 *Here's a step-by-step guide on how to communicate effectively and nurture your connection even in the toughest times.*
 
 ### Step 1: Set the Right Environment
